@@ -1,4 +1,5 @@
-### I like Tohno Akiha 👢 
+I use arch, btw.
+<!--### I like Tohno Akiha 👢 -->
 
 <!--
 **Sberm/Sberm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
