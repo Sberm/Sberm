@@ -1,6 +1,4 @@
 ### I use arch, btw.
-
-![](https://i.pinimg.com/originals/1a/d0/be/1ad0bef858d6a0224e953c483de534c8.gif)
 <!--### I like Tohno Akiha 👢 -->
 
 <!--
